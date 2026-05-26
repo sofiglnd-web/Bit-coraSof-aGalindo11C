@@ -1,1 +1,1 @@
-# Bit-coraSof-aGalindo11C
+# BitcoraSofiaGalindo11
